@@ -50,6 +50,12 @@
 
 #### Medicine
 
+### Family
+
+#### Psychological support for kids
+
+#### New homes for pets
+
 ## LEVEL 2: Psychological Needs
 
 ### People
